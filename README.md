@@ -1,2 +1,4 @@
 # all-erza
-pics of erza <3<3
+welcome to the largest collection of erza scarlet images and h3ntai.
+
+<3 <3
